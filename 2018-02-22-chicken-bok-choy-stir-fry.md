@@ -39,9 +39,9 @@ Chop, mince, dice everything from the veggie list and set aside.
 1. Heat sesame oil in wok or skillet. Add in garlic and cook until fragrant.
 2. Add in chicken mixture, cook until no longer pink.
 3. Stir in diced onions, cook down for a couple of minutes.
-4. Stir in mushrooms and bok choy, cook until tender.
+4. Stir in the remaining vegetables, cook until tender.
     * (optional) Stir in broccoli slaw, cook for a couple of minutes or until soft (don't let them go mushy.)
-5. Add additional soy sauce, salt, and pepper to taste.
+5. Add any desired additional soy sauce, salt, and pepper to taste.
 
 ## References
 https://lowcarbyum.com/chicken-bok-choy-stir-fry/
