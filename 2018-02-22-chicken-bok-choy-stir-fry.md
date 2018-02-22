@@ -1,5 +1,4 @@
 # Chicken Bok Choy Stir Fry
----
 
 ## Ingredients
 
