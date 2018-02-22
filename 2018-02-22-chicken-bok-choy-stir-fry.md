@@ -1,4 +1,5 @@
 # Chicken Bok Choy Stir Fry
+Any protein can be used here, but for the writeup I'm going with chicken.
 
 ## Ingredients
 
