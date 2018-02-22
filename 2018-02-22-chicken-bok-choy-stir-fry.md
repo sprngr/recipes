@@ -10,13 +10,16 @@
 
 ### Veggies
 * 1 bunch bok choy - chopped
+* 1 cup green pepper - sliced
 * 1 cup mushrooms - sliced
 * 2 tsp garlic - minced
 * 1 cup onion - diced
 * 12 oz broccoli slaw (optional)
 
 ### Oils, Sauces, and Seasonings
+* 1 tbsp ginger
 * 1 tbsp sesame oil
+* 1 tsp red pepper flakes
 * soy sauce
 * salt & pepper
 
@@ -25,7 +28,7 @@
 ### Chicken prep
 
 1. Cube your chicken, place into bowl
-2. Mix together 1 teaspoon of soy sauce, egg yolks, and flour. Coat chicken and set aside.
+2. Mix together 1 teaspoon of soy sauce, egg yolks, red pepper, ginger, and flour. Coat chicken and set aside.
 
 ### Veggie prep
 
