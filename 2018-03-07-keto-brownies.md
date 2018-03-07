@@ -7,7 +7,7 @@
 * 130 g unsalted butter or coconut oil
 * 200 g Granular sweetener replacement
 * 80 g cocoa powder
-* 1/2 teaspoon kosher salt
+* 3 g kosher salt
 * 2 eggs at room temperature
 * 70 g almond flour
 
