@@ -4,7 +4,7 @@
 ## Ingredients
 * 170 g pre shredded/grated cheese mozzarella is the best or Edam/mild cheese
 * 85 g almond meal/flour
-* 2 tbsp cream cheese
+* 56 g cream cheese
 * 1 egg
 * pinch salt to taste
 * 1/2 tsp dried rosemary/ garlic or other flavourings (optional)
