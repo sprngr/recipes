@@ -2,6 +2,8 @@
 Source: https://lowcarbyum.com/basic-quick-bread/
 
 ## Notes
+Also used almond flour as opposed to coconut.
+
 The only thing I'm changing with this is the inclusion of baking powder as well as the full 8 eggs, 
 I want to see how that yields since my first loaf was a bit shorter than expected.
 
