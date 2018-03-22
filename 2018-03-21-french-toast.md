@@ -5,6 +5,8 @@ Source: https://lowcarbyum.com/basic-quick-bread/
 The only thing I'm changing with this is the inclusion of baking powder as well as the full 8 eggs, 
 I want to see how that yields since my first loaf was a bit shorter than expected.
 
+Update: Came out fantastic. Will experiment with a touch of vinegar to react with baking powder next as well as a smidgen of cinnamon for slight sweetness.
+
 
 # Egg Wash & Cooking
 Source: https://lowcarbyum.com/cinnamon-french-toast/
