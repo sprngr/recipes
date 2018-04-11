@@ -1,4 +1,4 @@
-# Keto Chicken Katsu & Slaw [WIP]
+# Keto Chicken Katsu & Slaw
 
 # Chicken Katsu
 
