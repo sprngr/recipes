@@ -20,7 +20,13 @@ Use more as needed, will require enough to fill the bottom third of your pan.
 
 ## Instructions
 
-1. Prepare chicken by slicing width wise into thinner pieces. Salt and pepper both sides then set aside in the fridge.
+### Chicken prep
+1. Prepare chicken by slicing width wise into thinner pieces.
+2. Place cutlet into plastic zip lock bag, tenderize with tenderizer or heavy skillet.
+3. Salt and pepper both sides then set aside in the fridge.
+
+### Everything else
+1. When ready, get chicken from fridge.
 2. Prepare breading by placing each component into separate plates.
 3. Using wet hand/dry hand method: Coat cutlet with flour, then egg wash, then pork rinds.
 4. Set aside chicken until all are coated.
