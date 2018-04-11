@@ -59,6 +59,6 @@ Use more as needed, will require enough to fill the bottom third of your pan.
 
 ---
 
-After completing all of this, slice chicken cutlets, plate with side of slaw, and top chicken with drizzle of katsu sauce.
+After completing all of this, slice chicken cutlets to bite size portions, plate with side of slaw, and top chicken with drizzle of katsu sauce.
 
 Enjoy! :D
