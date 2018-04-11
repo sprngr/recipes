@@ -33,7 +33,7 @@ Use more as needed, will require enough to fill the bottom third of your pan.
 5. Fill bottom third of a skillet with oil on med high heat.
 6. Cook each piece of chicken for about 1-2 mins on each side in the oil, set aside on paper towel to dry and give light sprinkle of salt.
 
-# Katsu Sauce
+# Tonkatsu Sauce
 
 ## Ingredients
 
@@ -65,6 +65,6 @@ Use more as needed, will require enough to fill the bottom third of your pan.
 
 ---
 
-After completing all of this, slice chicken cutlets to bite size portions, plate with side of slaw, and top chicken with drizzle of katsu sauce.
+After completing all of this, slice chicken cutlets to bite size portions, plate with side of slaw, and top chicken with drizzle of tonkatsu sauce.
 
 Enjoy! :D
