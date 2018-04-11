@@ -5,7 +5,7 @@
 ## Ingredients
 
 ### Protein
-2lbs chicken breasts, sliced in half into 
+2lbs chicken breasts, sliced in half width-wise into thinner cutlets
 
 # Tonkatsu Sauce
 
