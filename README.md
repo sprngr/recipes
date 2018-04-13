@@ -10,7 +10,7 @@ There is a good chance I'll either reference a completed recipe (that means it's
 ## Frequently used recipes
 Low Carb Bread aka Fathead - https://www.lowcarbmaven.com/low-carb-hamburger-buns/
 
-## Sources
+## Good Sources for More Recipes
 https://ruled.me - great source for keto recipes
 
 ## License
