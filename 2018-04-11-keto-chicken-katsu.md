@@ -11,7 +11,7 @@
 Use more as needed, this is the base
 * 1 cup almond flour
 * 3 eggs, beaten
-* 1 cup of crushed pork rinds
+* 2 cups of crushed pork rinds, pulverized in food processor
 
 ### Oil
 Use more as needed, will require enough to fill the bottom third of your pan.
