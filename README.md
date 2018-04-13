@@ -12,3 +12,10 @@ Low Carb Bread aka Fathead - https://www.lowcarbmaven.com/low-carb-hamburger-bun
 
 ## Sources
 https://ruled.me - great source for keto recipes
+
+## License
+A lot of these are just remixes of other recipes I've found, some are original ones I've thrown together haphazardly.
+
+<a rel="license" href="http://creativecommons.org/licenses/by/4.0/"><img alt="Creative Commons License" style="border-width:0" src="https://i.creativecommons.org/l/by/4.0/80x15.png" /></a><br />This work is licensed under a <a rel="license" href="http://creativecommons.org/licenses/by/4.0/">Creative Commons Attribution 4.0 International License</a>.
+
+It's *open sauce* if you will :D
