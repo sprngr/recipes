@@ -8,8 +8,8 @@ http://abnehmtricks-und-abnehmtipps.de/low-carb-rezepte-ohne-kohlenhydrate/koest
 
 ## Ingredients
 ### Sauce
-- 1 can diced tomatoes
-- 1 small can tomato paste
+- 1 14oz can diced tomatoes
+- 1 12oz can tomato paste
 - 1 Onion (white or red) (diced)
 - 1 tbsp curry powder
 - 1 tsp onion powder
@@ -21,6 +21,7 @@ http://abnehmtricks-und-abnehmtipps.de/low-carb-rezepte-ohne-kohlenhydrate/koest
 - Dice onions, place into pot and caramelize.
 - Combine onions with diced tomatoes and can of paste.
 - Mix in onion powder, paprika, and curry powder.
+- Add a little water if it is too thick.
 
 - Boil bratwurst in water for about 10 minutes, then sear on grill and/or skillet. 
 - Slice and pour over with sauce, mix with sauce, or use sauce for dipping. It's your food.
